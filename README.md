@@ -1,6 +1,2 @@
-![b14f37c22d7d961d503d705fe5dddf2e](https://github.com/Anx1etyFreak/Anx1etyFreak/assets/132960822/3e0d5458-c322-41d7-836d-6ca1c9a76f72)
-
-
-pretty much nothing but will be adding soon ^^
-
-BTW PLS DO SIGN MY retrospring i check it everday, it brightens my day ^^
+![image](https://github.com/user-attachments/assets/3f34030d-1e54-4fcb-9f2a-997f82221422)
+i have nothing to say or give. im honestly lazy
